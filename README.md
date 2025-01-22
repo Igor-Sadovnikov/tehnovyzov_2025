@@ -1,0 +1,1 @@
+# tehnovyzov_2025
